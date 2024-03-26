@@ -1,1 +1,0 @@
-# Segunda-practica-integradora-Practica-de-integracion-sobre-tu-ecommerce
